@@ -1,1 +1,1 @@
-# cookies
+honeartwork.com cookie policy
